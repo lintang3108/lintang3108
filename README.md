@@ -33,8 +33,7 @@
 
 ## 🌐 Connect with Me
 - ✨ GitHub: [@lintang3108](https://github.com/lintang3108)  
-- 💼 LinkedIn: [Your LinkedIn Link]  
-- 📫 Email: your.email@example.com  
+- 📫 Email: your.dalangulunggmail.com  
 
 ---
 
